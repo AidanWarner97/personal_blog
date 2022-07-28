@@ -25,4 +25,11 @@ I need you to know that I want to be a better person.  I want to be a husband yo
 I've put in an email to the doctor to try and get help with my medication.  I've still not heard from Talkworks, but I'm going to keep trying until I get an answer to when they'll see me again.  
   
 ## I miss you <3
+  
+  
+  
+I want to be back to normal.  I want us to be us.  I don't want to be doing any of this messing around with where we are with everything.  
+Yes, currently I am scared to spend time with you because I'm scared I'm going to cause more problems, I also want to be there when you wake up.  I want to be able to make you coffee in the morning, take the kids so you can have a nap and so much more!  
+  
+You say that the last few days have shown you a lot.  I'm not sure what that means, but if it's about how I've been quiet over messages, I've needed the space to let my mind do whatever wandering it needed to do and not keep it on a leash and let it thrash around causing more problems locally.  I'd rather follow it around picking up it's pieces, cleaning up it's mess and making things right again once I know what it wants.  
 
