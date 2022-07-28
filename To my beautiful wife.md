@@ -10,7 +10,7 @@ I love you.  More than anything (other than the kids which I know you're the sam
 If I could have a magic wand and fix everything, I would use it pretty much every single day.  
 
 I currently don't have much control over the feelings I've got in my head.  I feel like an utter failue to you, the kids, and everyone else that knows me.  
-All I want to do most days is curle up and cry.  
+All I want to do most days is curl up and cry.  
 I've let everyone down, and all in different ways.  
   
 I want to be back home with you, but I'm scared that even spending time with you is going to cause me to break things to a point I could never ever patch things up again.  
